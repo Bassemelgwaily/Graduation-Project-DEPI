@@ -53,4 +53,10 @@ Employees who left due to Low Engagement had a KPI of only 60.54% — the lowest
 ✅ Best Performers Are Leaving Voluntarily
 Employees who left for Better Offers had KPI = 75.18% — above company average — meaning competitors are poaching top talent.
 
+👤 Author
+[Bassem Mohammed Talaat]
+LikkedIn : www.linkedin.com/in/bassem-elgwaily-908863211
+
+
+
 
